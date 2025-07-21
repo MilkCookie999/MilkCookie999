@@ -1,5 +1,6 @@
 
-
+<p align="center">
+May all Cookies overcome their hardships!<code style="color : lightskyblue">May all Cookies overcome their hardships!</code>
 
 <p align="center">
   <img <img width="650" height="500" alt="image" src="https://github.com/user-attachments/assets/4a679ee4-b391-4378-9526-956627b3fb74" />
@@ -11,6 +12,6 @@
   c+h freely, offtab often.
 beastxancient/shadowarcher dni.
  <p align="center"> 
-  <img width="500" height="450" alt="image" src="https://github.com/user-attachments/assets/13be9690-7653-4bd2-ac0c-0b43cf1e1589" />
- <p align="center">
-  <code style="color : lightskyblue">I love him so muchˋ°•*⁀➷ .⋆My innocent boy‿‿‿ .⋆｡°</code>
+ <img width="300" height="200" alt="image" src="https://github.com/user-attachments/assets/15702a4a-34af-48a5-a502-140b0b9b6ae7" />
+  <p align="center"> 
+   <code style="color : lightskyblue">I love him so muchˋ°•*⁀➷ .⋆My innocent boy‿‿‿ .⋆｡°</code>
