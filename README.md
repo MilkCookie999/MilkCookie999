@@ -2,7 +2,8 @@
 
 
 <p align="center">
-  <img src="https://raw.githubusercontent.com/your-username/your-repo/main/milk-cookie-jellybear.jpg" width="220" alt="Milk Cookie enjoying jelly bears" />
+  <img <img width="225" height="225" alt="image" src="https://github.com/user-attachments/assets/4a679ee4-b391-4378-9526-956627b3fb74" />
+
 </p>
 
 I’m **Milk Cookie**, a noble paladin baked from the witches and blessed by the Light itself.  
