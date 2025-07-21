@@ -6,7 +6,7 @@
 
 </p>
 
-I’m **Milk Cookie**, a noble paladin baked from the witches and blessed by the Light itself.  
+***Milk Cookie***, a noble paladin baked from the witches and blessed by the Light itself.  
 c+h freely, offtab often.
 beastxancient dni, or any wierd shippers. (I support rarepairs! Just not adultxminor.) 
  
