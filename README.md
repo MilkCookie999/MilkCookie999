@@ -6,7 +6,8 @@
 
 </p>
 <p align="center">
-Milk Cookieˋ°•*⁀➷ .⋆ a noble paladin baked from the witches and blessed by the Light itself.⋆｡°
+<code style="color : aqua">Milk Cookieˋ°•*⁀➷ .⋆ a noble paladin baked from the witches and blessed by the Light itself.⋆｡°</code>
+
 <p align="center">
   c+h freely, offtab often.
 beastxancient dni, or any wierd shippers. (I support rarepairs! Just not adultxminor.) 
