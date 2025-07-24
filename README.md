@@ -3,7 +3,7 @@
 <code style="color : lightskyblue">May all Cookies overcome their hardships!</code>
 
 <p align="center">
-  <img <img width="650" height="600" alt="image" src="https://github.com/user-attachments/assets/4a679ee4-b391-4378-9526-956627b3fb74" />
+  <img <img width="700" height="650" alt="image" src="https://github.com/user-attachments/assets/4a679ee4-b391-4378-9526-956627b3fb74" />
 <p align="center">
 <code style="color : lightskyblue">I shall fight the darkness!</code>
 
