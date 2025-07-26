@@ -17,6 +17,8 @@
   <code style="color : lightskyblue">DNI</code>
 <p align="center">
    proshippers, preds, ageplayers, dark romance shippers, shadowarcher, beastxancient, sexual/flirty people, tcoaal fans, hh/hb fans, toxic people.
+<p align="center">
+  <code style="color : lightskyblue"> No hate to them! Just feel uncomfy abt it.</code> 
  <p align="center"> 
  <img width="300" height="200" alt="image" src="https://github.com/user-attachments/assets/15702a4a-34af-48a5-a502-140b0b9b6ae7" />
   <p align="center"> 
