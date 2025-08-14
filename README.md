@@ -1,4 +1,4 @@
-
+![](https://komarev.com/ghpvc/?username=MilkCookie999&abbreviated=true)
 <p align="center">
 <code style="color : lightskyblue">May all Cookies overcome their hardships!</code>
 
