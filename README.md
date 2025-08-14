@@ -1,4 +1,4 @@
-
+[![Image of https://github.com/melogabriel/repositories-views-counter](https://github.com/melogabriel/repositories-views-counter/blob/master/svg/profile/badge.svg)](https://github.com/melogabriel/repositories-views-counter)
 <p align="center">
 <code style="color : lightskyblue">May all Cookies overcome their hardships!</code>
 
