@@ -25,4 +25,9 @@
   <p align="center"> 
    <code style="color : lightskyblue">This is an rp account, please don't mistake this as an official!</code>
 
+  <p align="center">
+  Things about me! 
+    <p align="center">
+  I'm a nerd of Marvel, DC, ML:bb, Undertale, CRK, Flavour Frenzy, etc. (Ask me)
+  I usually forget a lot, quiet often, and mostly lazy. 
   
