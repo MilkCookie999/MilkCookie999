@@ -14,7 +14,7 @@ https://vitalityloki.straw.page/
 <code style="color : lightskyblue">May all Cookies overcome their hardships!</code>
 
 <p align="center">
-<img width="1200" height="600" alt="image" src="https://github.com/user-attachments/assets/61cbec25-930a-4ece-b93d-93ad2f0efe43" />
+<img width="1200" height="800" alt="image" src="https://github.com/user-attachments/assets/61cbec25-930a-4ece-b93d-93ad2f0efe43" />
 
 <p align="center">
 <code style="color : lightskyblue">I shall fight the darkness!</code>
