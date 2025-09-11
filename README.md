@@ -19,7 +19,9 @@ https://vitalityloki.straw.page/
  <p align="center">
   <code style="color : lightskyblue">DNI</code>
 <p align="center">
-   proshippers/preds/ageplayers/darkromance glazers/toxic people/beastxancient (crk)/smcxwind (crk)/flirtious/seductive humor
+   proshippers/preds/ageplayers/darkromance glazers/
+  toxic people/beastxancient (crk)/smcxwind (crk)/flirtious/
+  seductive humor
 <p align="center">
   <code style="color : lightskyblue"> No hate to them! Just feel uncomfy abt it.</code> 
  <p align="center"> 
