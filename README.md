@@ -1,3 +1,4 @@
+<p align="center">
 https://vitalityloki.straw.page/
 ![](https://komarev.com/ghpvc/?username=MilkCookie999&abbreviated=true)
 <p align="center">
