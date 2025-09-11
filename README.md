@@ -1,23 +1,25 @@
+
+<img width="2500" height="150" alt="image" src="https://github.com/user-attachments/assets/ac5e30e4-2a9e-4883-9f64-1126769a0c0c" />
+
+
 <p align="center">
 https://vitalityloki.straw.page/
 <p align="center">
 <code style="color : lightskyblue">May all Cookies overcome their hardships!</code>
 
 <p align="center">
-  <img <img width="700" height="650" alt="image" src="https://github.com/user-attachments/assets/4a679ee4-b391-4378-9526-956627b3fb74" />
+<img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/61cbec25-930a-4ece-b93d-93ad2f0efe43" />
+
 <p align="center">
 <code style="color : lightskyblue">I shall fight the darkness!</code>
 
-</p>
-<p align="center">
-<code style="color : lightskyblue">Milk Cookieˋ°•*⁀➷ .⋆ a noble paladin baked from the witches and blessed by the Light itself.⋆｡°</code>
 
 <p align="center">
   c+h freely, offtab often.
  <p align="center">
   <code style="color : lightskyblue">DNI</code>
 <p align="center">
-   proshippers, preds, ageplayers, darkromance glazers, toxic people, beastxancient (crk), smcxwind (crk), flirtious/seductive humor
+   proshippers/preds/ageplayers/darkromance glazers/toxic people/beastxancient (crk)/smcxwind (crk)/flirtious/seductive humor
 <p align="center">
   <code style="color : lightskyblue"> No hate to them! Just feel uncomfy abt it.</code> 
  <p align="center"> 
@@ -26,7 +28,7 @@ https://vitalityloki.straw.page/
    <code style="color : lightskyblue">This is an rp account, please don't mistake this as an official!</code>
 
   <p align="center">
-  Things about me! 
+ <code style="color : lightskyblue">Things about me! 
     <p align="center">
   I'm a nerd of Marvel, DC, ML:bb, Undertale, CRK, Flavour Frenzy, etc. (Ask me)
   I usually forget a lot, quiet often, and mostly lazy. 
