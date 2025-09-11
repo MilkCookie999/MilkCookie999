@@ -1,13 +1,14 @@
 
 <img width="2500" height="150" alt="image" src="https://github.com/user-attachments/assets/ac5e30e4-2a9e-4883-9f64-1126769a0c0c" />
 
+<p align="center">
+<code style="color : lightskyblue">I shall fight the darkness!</code>
 
 <p align="center">
 https://vitalityloki.straw.page/
   <p align="center">
   c+h freely, offtab often.
     <p align="center">
-<code style="color : lightskyblue">I shall fight the darkness!</code>
 
 <p align="center">
 <code style="color : lightskyblue">May all Cookies overcome their hardships!</code>
