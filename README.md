@@ -6,6 +6,9 @@
 https://vitalityloki.straw.page/
   <p align="center">
   c+h freely, offtab often.
+    <p align="center">
+<code style="color : lightskyblue">I shall fight the darkness!</code>
+
 <p align="center">
 <code style="color : lightskyblue">May all Cookies overcome their hardships!</code>
 
