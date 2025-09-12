@@ -7,7 +7,7 @@
 <p align="center">
 https://vitalityloki.straw.page/
   <p align="center">
-  c+h freely, offtab often.
+  c+h lover, offtab often.
     <p align="center">
 
 <p align="center">
